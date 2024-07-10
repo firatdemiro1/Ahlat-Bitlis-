@@ -1,0 +1,1 @@
+hayat uzun ömür kısa
